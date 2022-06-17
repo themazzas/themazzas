@@ -4,6 +4,8 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
+<center>This is centered</center>
+
 > all good boys eat pie
 > bhjlebfe
 > gfewg
