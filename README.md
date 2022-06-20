@@ -4,18 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-<center>This is centered</center>
 
-> all good boys eat pie
-> bhjlebfe
-> gfewg
-> rewg
-> rsg
-> rwg, bhcdjlgsjcdg sajc gdhajsgkcdhjsak gchdjsagk cdhjk sgachjkdsg ahcjkdgsahjckg dsahjkgchdjskag chjdksag chjdksag chjdksg achjdkgsahcjkdg sahjkcg dshjakgc hdjskagcjhkg chjaks
-
-
-[google](http://google.com)
-![middle](https://upload.wikimedia.org/wikipedia/commons/5/56/Middle_Island_ONT_CA_2006.jpg)
 <!---
 themazzas/themazzas is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
