@@ -15,6 +15,9 @@ Island Transitions is designed to specifically help older adults make a successf
 |***Senior Moving Services***|***Home Organizing***|***Downsizing***|
 |A senior moving consultant at Island Transitions specializes in dealing efficiently, but sensitively with the challenging tasks of senior relocation and home organizing.|Perhaps you want to stay in your current home. We are here to help with professional organizers and make your living situation that much more comfortable.|With our senior move manager, we will help you to transition from a larger home to a smaller living space with ease. Our professional organizers will make sure you are making the most of your space!|
 
+**Senior Move Coordinator and Professional Packing**
+Are you moving into a senior assisted living or independent living community? Island Transitions will provide you with a personal assistant and move coordinator who will use their expertise, caring and efficient approach to meet your needs. We will do your space planning, sorting, professional packing, coordination with a moving company and unpacking at your new home.
+
 
 
 
