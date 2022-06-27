@@ -20,6 +20,9 @@ Are you moving into a senior assisted living or independent living community? Is
 
 Our specially-trained staff also wants to provide you with emotional support and encouragement throughout this transition. If you are planning to relocate from New York, our senior move management partners across America and Canada can handle your unpacking and home set up for you. If you are interested in hiring a senior move manager, please contact us today. Call us today at 631-421-3781 to learn more about all of our services. We will provide you with a no-hassle consultation for our services.
 
+***Testimonials***
+“Thank you for your strong support in helping me to move from my home of 56 years. I can't believe how much stuff I had accumulated over time. Your team was great and even found my missing $2600 cash! You were always positive and in control of the task at hand, when I was not! I'll miss seeing you and would give Island Transitions a 10 out of 10 rating!" - With gratitude, Rhonnie Lewis, Oceanside, NY
+
 
 
 
